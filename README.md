@@ -72,7 +72,7 @@ I combine design, video editing, voice-over, and marketing strategies to elevate
 
 ---
 
-## ⭐ لماذا تختاريني؟ — Why Me  
+## ⭐ لماذا أنا ؟ — Why Me  
 
 - 🔥 تصميم + محتوى + تسويق = نتائج  
 - 🎯 حلول مخصصة  
